@@ -1,0 +1,1 @@
+# touhou-lostword-flandre-scarlet
